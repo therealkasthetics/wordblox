@@ -23,7 +23,7 @@ I value your trust in providing me your Personal Information, thus I am striving
 
 #### Changes to This Privacy Policy
 
-I may update this Privacy Policy from time to time. Thus, you are advised to review this page periodically for any changes. I will notify you of any changes by posting the new Privacy Policy on this page. This policy is effective as of 2022-10-11.
+I may update this Privacy Policy from time to time. Thus, you are advised to review this page periodically for any changes. I will notify you of any changes by posting the new Privacy Policy on this page. This policy is effective as of 2022-11-10.
 
 
 ## Terms & Conditions
@@ -44,4 +44,4 @@ I may also wish to stop providing the app, and may terminate use of it at any ti
 
 #### Changes to This Terms and Conditions
 
-I may update Terms and Conditions from time to time. Thus, you are advised to review this page periodically for any changes. I will notify you of any changes by posting the new Terms and Conditions on this page. These terms and conditions are effective as of 2022-10-11.
+I may update Terms and Conditions from time to time. Thus, you are advised to review this page periodically for any changes. I will notify you of any changes by posting the new Terms and Conditions on this page. These terms and conditions are effective as of 2022-11-10.
